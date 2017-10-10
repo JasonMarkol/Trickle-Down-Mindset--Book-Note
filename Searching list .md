@@ -177,6 +177,46 @@ youtube 学习关键词
 slingback	
 n.	（鞋后帮呈带状的） 露跟女鞋;
  
+---------------------------------------------------------------
+
+The Ultimate Guide 
+
+Hackathons 
+
+Self-Improvement
+
+------------------------------------
+发不了财的男人   没主见 
+
+
+Be good with women in General ..........
+
+Habits Rich People Have (That Most of Us Don't)
+Morning routines    The activities buidling Momentum  in the day .
+
+slow  start small    ..... 15 page book      
+
+People give up to big to quick ....
+
+
+
+They take immdeiate action ...
+
+
+
+
+They schedule their day .(the night before )
+Weekly goal ----To do list  ---Proioritize the list20/80 ....
+1 2 3  4 5 
+And you can do in moring with out dely ....
+
+
+They kill time wasters .
+
+They concious avid things  waste theyir time. 
+
+What time wasters do you let take hours out of you day on a consistent basis .
+
 
 
 
