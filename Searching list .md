@@ -222,6 +222,42 @@ They concious avid things  waste theyir time.
 What time wasters do you let take hours out of you day on a consistent basis .
 
 
+事实上，绝大多数的付费课程，基本上都有完全免费的课程放在另一个地方。   
+
+
+How to Host a Party blog
+Original 
+youtube yingyutingli 
+ Math turorial 
+ Programer youtube channel 
+social proof 
+小说 语文文法 comdey  英文听力 
+ software engineer   problem sloving   
+
+
+
+
+Somes it take month   
+
+
+reasons why i love being a software engineer?
+
+Its walways learning   ..... （So wriey）   Allways nes stuffs comeout .
+
+Do you need to be good at math to be a Software Engineer?
+
+Just a little .   But you must have logic problem sloving skill.
+
+
+
+mobile engineer  
+game engineer 
+graphics engineer 
+frontend engineer 
+backend engineer 
+data engineer 
+
+
 
 
 
