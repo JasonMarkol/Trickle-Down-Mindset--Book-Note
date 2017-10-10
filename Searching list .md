@@ -1,3 +1,7 @@
+# 一天一个关键词并且行动
+
+# 2017-9-28 SOCIAL PROOF THEORY
+
 # how to stop being need
 
 # Matrix 
