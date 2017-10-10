@@ -1,4 +1,5 @@
 
+# Tips 一个个练习，习惯慢慢来的，慢慢加。
 
 Straight-Are-Not-Enough
 
