@@ -87,7 +87,96 @@ https://www.pornhub.com/view_video.php?viewkey=ph5792b4b049a10
 
 
 
+Swissbeatbox 
+https://www.youtube.com/user/Pepouni/videos 
 
+
+Your #1 Newsletter for Accelerated Learning
+
+Can't wait to get rich and give advise to the poor myself.
+
+How to Stop Worrying and Start Living 
+
+全栈工程师(Full Stack Developer)  
+Md 文件怎么打开 
+文本编辑器 
+markdown文件最专业的还是markdownPad软件。左边是源码，右边可以看展示效果。
+
+social skill gurus
+solid foundation 
+How To
+Change Your Life Around
+In 30 Days
+
+Ranny moore 
+http://lol.qq.com/ 
+https://www.clips4sale.com/studio/43868/glam-worship 
+POWERLESS FOR PANTYHOSE
+https://www.pornhub.com/view_video.php?viewkey=1605620540
+
+I AM YOUR BOSS
+https://www.pornhub.com/view_video.php?viewkey=ph55f48f06f31f6 
+RANDY MOORE PANTYHOSE LOSER SEXY LEGS
+https://www.pornhub.com/view_video.php?viewkey=ph560d417698a51#
+PANTY HOSE JOI
+https://www.pornhub.com/view_video.php?viewkey=980552827
+
+
+
+https://www.reddit.com/r/programming/
+
+how to market yourself
+dirty sercet.
+I like milf tit . 
+
+https://www.pornhub.com/users/carrylight
+https://www.pornhub.com/users/carmen-cumtrol
+https://www.pornhub.com/users/mariekaefer
+
+
+CARMEN CUMTROL: "THE ART OF EDGING"
+https://www.pornhub.com/view_video.php?viewkey=ph59ad99771408f
+
+
+https://www.tumblr.com/dashboard
+
+SABLE - RUINED ORGASM 2
+https://www.pornhub.com/view_video.php?viewkey=ph58eac27040bc6
+
+https://marie-kaefer.tumblr.com/  
+http://mariekaefer.eu/ 
+
+
+RUINED ORGASM
+
+ashley-alban
+https://www.pornhub.com/pornstar/ashley-alban
+
+HANDJOB TECHNIQUES 1
+https://www.pornhub.com/view_video.php?viewkey=ph583b59fba1c66
+
+
+
+
+EDGING WITH CONSEQUENCES II
+https://www.pornhub.com/view_video.php?viewkey=ph585802dfec5c3
+FETISH_CEIHOOKER
+https://www.pornhub.com/view_video.php?viewkey=ph58c456f262c86
+
+
+SARAH BLAKE CHASTITY 1 WEEK CHASTITY ASSIGNMENT
+https://www.pornhub.com/view_video.php?viewkey=346589121
+CHASTITY CHALLENGE
+assignment  task mission 
+Sellma joi 
+youtube 学习关键词 
+学习如何学习 
+如何写作 
+
+
+slingback	
+n.	（鞋后帮呈带状的） 露跟女鞋;
+ 
 
 
 
