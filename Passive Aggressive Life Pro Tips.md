@@ -8,3 +8,5 @@ For instance if you see an original in a series, check for the prime icon in the
 
 # LPT : Use earbuds with a microphone for your phone calls. Durring the call touch one of the speaker earpieces to the microphone, the person on the other line will hear either everthing they say echoed back, or a high pitched squeel sound.
 
+# LPT: Parents, go absolutely fucking ballistic when your child comes home from school and they got a B on an assignment. It's a really good way to boost their self-confidence, improve their trust in you, and not make them actually consider suicide.
+
