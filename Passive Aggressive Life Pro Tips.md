@@ -1,6 +1,9 @@
 
 # Twenty Thousand Leagues Under the Sea
 
+# Somethings life changing .Looking for a book that just changes your perspective or makes you think, wether that be a philosophical book or an interesting autobiography, just something that leaves you thinking "wow"
+
+
 # Is NLP/NeuroLinguisticProgramming still a thing?I came across a website this days , with a few of the NLP posts, so this came in mind , is it still a thing . Maybe will come in handy
 
 
