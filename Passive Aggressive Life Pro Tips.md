@@ -1,4 +1,9 @@
 
+# [NEED ADVICE] I know what to do, Why don’t I do it?
+
+Real quick I'd like to share this info about the knowledge-action gap. It's in this youtube video from 24:19-30:28.
+https://youtu.be/clU3sfKzsbU?t=24m19s
+
 # Twenty Thousand Leagues Under the Sea
 
 # Somethings life changing .Looking for a book that just changes your perspective or makes you think, wether that be a philosophical book or an interesting autobiography, just something that leaves you thinking "wow"
