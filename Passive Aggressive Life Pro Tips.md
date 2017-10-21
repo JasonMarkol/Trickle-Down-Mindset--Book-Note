@@ -1,4 +1,5 @@
 
+# Attraction is not about what you say or do, but about who you are. You can have the coolest line in the world, but if you're a loser and are desperate to impress her, you will kill any attraction. You could say the dumbest thing in the world, but if you're a cool guy, it won't matter, in fact it will likely make her like you even more.
 
 # LPT: If you're browsing amazon video and you start seeing movies you are interested in, you probably forgot to filter for movies 'included with prime'. Careful not to click on a movie you might like, as those are the ones you have to pay for
 
