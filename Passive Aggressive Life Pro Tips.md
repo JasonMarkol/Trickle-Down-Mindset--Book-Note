@@ -1,4 +1,12 @@
 
+# Is NLP/NeuroLinguisticProgramming still a thing?I came across a website this days , with a few of the NLP posts, so this came in mind , is it still a thing . Maybe will come in handy
+
+
+NLP is a messy theory. Research has disproved a lot of their ideas but a good amount of ideas still stand as scientifically legitimate. Some of the things you can use are pacing and leading, mental imagery, and mirroring. However, if you are looking to use these NLP techniques to become more socially adept, I recommend studying theory (by reading books like How to Win Friends and Influence People) instead of using these ideas.
+In short NLP has some valid tools but the basis of the theory is flawed. And the tools are just that, tools. So get a foundation of social skills then use them. Only learning NLP is like buying a hammer and thinking you’re an architect.
+
+
+
 # Attraction is not about what you say or do, but about who you are. You can have the coolest line in the world, but if you're a loser and are desperate to impress her, you will kill any attraction. You could say the dumbest thing in the world, but if you're a cool guy, it won't matter, in fact it will likely make her like you even more.
 
 # You become an attractive individual by investing in yourself rather than in the women you are pursuing. Sex and women is a side effect of becoming an emotionally competent and sexually confident man, not the cause of it.
