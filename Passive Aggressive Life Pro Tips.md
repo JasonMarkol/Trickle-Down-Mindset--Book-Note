@@ -20,3 +20,9 @@ Act unphased but amused, almost like they're shitty clowns that you're enjoying 
 
 # LPT: When introducing someone to a group of people, don't say he or she is nervous or shy. That creates embarrassment and compounds the problem.
 
+# how to quit smoking as a group of friends
+
+Groups of friends tend to smoke together. There comes a time when part of or all the group wants to quit. Well, you can do it together using the SLAP bet!
+I smoked a lot in my 20's and my group of friends and I all decided to quit together. What helped us was our "slap bet". If any of us caught one of our group of friends smoking a cigarette, EACH ONE of us could slap that person up to 3 times in the span of a month. AT ANY TIME we want (could walk in on a friend fucking and smack em if we wanted, that was part of the deal, they could be taking a shit, kick open the door, SMACK!). With that fear, I quit cold turkey and never looked back. My buddy wasn't so lucky and we found him smoking, we all gathered in a line (8+ of us) and each slapped the shit out of him. One of my slaps, I walked into his room while him and his girlfriend were asleep and I slapped him, SMACK!
+It's fun. At the end of the day, it's just a slap, but it deters you when you're staring at the cigarette and imagine 30+ slaps over the next 30 days. It's a nice incentive.
+Hope it works for you!
