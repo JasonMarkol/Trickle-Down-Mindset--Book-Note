@@ -3,6 +3,8 @@
 
 Real quick I'd like to share this info about the knowledge-action gap. It's in this youtube video from 24:19-30:28.
 https://youtu.be/clU3sfKzsbU?t=24m19s
+<br/>
+https://www.reddit.com/r/getdisciplined/comments/77ngmh/need_advice_i_know_what_to_do_why_dont_i_do_it/
 
 # Twenty Thousand Leagues Under the Sea
 
