@@ -10,3 +10,5 @@ For instance if you see an original in a series, check for the prime icon in the
 
 # LPT: Parents, go absolutely fucking ballistic when your child comes home from school and they got a B on an assignment. It's a really good way to boost their self-confidence, improve their trust in you, and not make them actually consider suicide.
 
+# How to handle other men coming to hit on a girl I'm *currently* talking with? 
+Act unphased but amused, almost like they're shitty clowns that you're enjoying a bit. Don't try to compete, in fact overamplify them like the court jester. Separately, you should have been running solid game prior so that she's getting more emotional spikes from you already and has no interest in them to begin with. If they're unwelcome to her, she'll make clear in no uncertain terms and they'll bugger off while you're unreactive, perhaps somewhat amused, like how you'd feel if your 5 year younger immature brother was trying to impress your long term girlfriend. 
