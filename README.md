@@ -1,6 +1,7 @@
 # Trickle-Down-Mindset--Book-Note
 要做极端的话，要记得看回那个效果。<br/>
 重庆小面关键看酱料，越麻辣应该是越好吃的，传统就是小面。 <br/>
+车辆代检是指自己的车辆无法通过年检，找关系通过，或者是在外地无法来年检，找朋友代替年检。<br/>
 
 # This is You Started philosopher system
 
