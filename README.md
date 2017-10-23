@@ -1,4 +1,5 @@
 # Trickle-Down-Mindset--Book-Note
+要做极端的话，要记得看回那个效果。
 
 # This is You Started philosopher system
 
