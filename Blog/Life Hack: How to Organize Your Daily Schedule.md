@@ -10,8 +10,10 @@ We all have been advised to manage our time especially that a hectic schedule li
 
 
 
-3.       Break your day into blocks. Today in the busy and fast – pacing world, multitasking has been a mainstream. People seem to feel they are not productive if they are not doing five tasks at a time. Actually, <br/>you will be able to be more productive if you give a portion of time into something at a time where you could fully give your focus. Be sure to finish it before going to the other task.
+3.       Break your day into blocks. <br/>
+Today in the busy and fast – pacing world, multitasking has been a mainstream. People seem to feel they are not productive if they are not doing five tasks at a time. Actually, <br/>you will be able to be more productive if you give a portion of time into something at a time where you could fully give your focus. Be sure to finish it before going to the other task.
 <br/>
 
 
-4.       Usually when the clock strikes at 5, all you want to do is jump out of the chair and go home. But taking just a few minutes to plan for tomorrow makes a huge difference. Make it a habit to stop working 15 minutes early,<br/> clean up your desk and put away any unnecessary item. Check and review your schedule for the next day and be sure to be prepared.
+4.       Usually when the clock strikes at 5, all you want to do is jump out of the chair and go home. 
+<br/>But taking just a few minutes to plan for tomorrow makes a huge difference. Make it a habit to stop working 15 minutes early,<br/> clean up your desk and put away any unnecessary item. Check and review your schedule for the next day and be sure to be prepared.
