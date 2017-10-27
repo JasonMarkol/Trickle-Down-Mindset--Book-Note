@@ -1,9 +1,8 @@
 
 # You have to do whatever it takes and don’t give up
-# You can always fnd an excuse, but you can always fnd an inspiration
-too.
+# You can always fnd an excuse, but you can always fnd an inspiration too.
 
-Dig deep
+# Dig deep
 There’s always a reason not to do something. The truth is for many
 of us, life can be hard at times, but this is when we have to dig deep
 and push forward. We have to move away from our comfort zone and
