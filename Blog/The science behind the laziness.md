@@ -36,7 +36,24 @@ perhaps we spend 80% of the time with 20% of our acquaintances, and so on.  
 
 
 
-The Pareto principle is unrelated to Pareto efficiency, which really was introduced by Vilfredo Pareto. Vilfredo Pareto (born 15 July 1848 in France, died 19 August 1923 in Lausanne, Switzerland) made several important contributions to economics, sociology and moral philosophy, especially in the study of income distribution and in the analysis of individuals’ choices. He introduced the concept of Pareto efficiency and helped develop the field of microeconomics with ideas such as indifference curves. In 1906, he made his observation about Italian property which was later generalised into the Pareto principle, and into the concept of a Pareto distribution.   The Pareto principle or 80/20 rule can and should be used by every smart but lazy person in their daily life. The value of the Pareto principle for a project manager is that it reminds you to focus on the 20% that matters.   Woody Allen once said ‘80% of success is showing up’. I’m not so sure about that; I have seen projects where there was a physical project manager around, but you would never have believed that looking at the project’s progress, or lack of progress. No, it’s better – I believe – to appreciate that out of all the things you do during your day, only 20% really matter. Those 20% produce 80% of your results. So you should identify and focus on those things during your working day.  
+The Pareto principle is unrelated to Pareto efficiency, which really was introduced by Vilfredo Pareto. 
+
+
+
+Vilfredo Pareto (born 15 July 1848 in France, died 19 August 1923 in Lausanne, Switzerland) made several important contributions to economics, sociology and moral philosophy, especially in the study of income distribution and in the analysis of individuals’ choices. 
+
+
+He introduced the concept of Pareto efficiency and helped develop the field of microeconomics with ideas such as indifference curves. In 1906, he made his observation about Italian property which was later generalised into the Pareto principle, and into the concept of a Pareto distribution.   The Pareto principle or 80/20 rule can and should be used by every smart but lazy person in their daily life. The value of the Pareto principle for a project manager is that it reminds you to focus on the 20% that matters.   
+
+
+
+Woody Allen once said ‘80% of success is showing up’. I’m not so sure about that; I have seen projects where there was a physical project manager around, but you would never have believed that looking at the project’s progress, or lack of progress.
+
+
+No, it’s better – I believe – to appreciate that out of all the things you do during your day, only 20% really matter. 
+
+
+Those 20% produce 80% of your results. So you should identify and focus on those things during your working day.  
 
 
 
