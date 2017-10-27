@@ -3,6 +3,7 @@ Create a classroom blog that allows students to respond electronically to
 questions and ideas.<br/>
 Rather than using notecards, use a computer lab and display one comprehension question on each computer. Ask students to rotate around the room answering questions and making comments related to the topic.<br/>
 “The party doesn’t start until Bill gets out the dictionary.”<br/>
+Innovation, on the other hand, is key because it allows you to overcome existing industry conditions. Without it, companies are stuck in the trap of competitive improvements.<br/>
 要做极端的话，要记得看回那个效果。<br/>
 你只要對任何一種學問、技能癡迷，就會在那領域不段進步，你再用少許手段，就能把你所知的，變成錢 <br/>
 要把握好一個概念，不能從全陌生開始，最好的方法是從熟悉有印象的先開始，或者是讀著陌生的資訊時，你有沒有辦法聯想你熟悉的資訊，再套進去做詮釋！<br/>
