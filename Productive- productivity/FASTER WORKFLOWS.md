@@ -61,3 +61,6 @@ Write a listing of all of the duties that you simply do every day, and take the 
 
 # ADDRESSING E MAIL
 If one in all these duties is addressing electronic mail, ask your self how a lot time you need to spend on emails. Most individuals wish to spend considerably much less time on emails than they at present do. Seek advice from Chapter 15 for particulars on the best way to course of your electronic mail extra successfully.                   Don’t open your e-mail tomorrow morning till you’ve accomplished at the very least one necessary activity. Observe how good it feels and the way productive your day turns into.
+
+# MAKING YOUR LIFE SIMPLER
+Changing into extra productive is a intelligent approach to make your life simpler. Getting your work accomplished extra rapidly and effectively means you're employed fewer hours and may use the additional time saved to have extra enjoyable. Easy modifications like the way in which you course of your e-mail can assist you save as much as an hour a day. An hour saved every day provides as much as 5 hours every week, 20 hours a month, and nearly every week and a half every year. Or, in work time, that’s six work weeks every year that you should utilize to both earn more cash or to calm down and make your life simpler.
