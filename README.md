@@ -4,6 +4,7 @@
 # Idea 2 不要骗自己 mindset
 “Cheating discipline doesn’t work”. 
 # Idea 
+开个玩笑兄弟，我也是挖个坑给你们吐槽一下。
 
 # Rule
 “But I ’ ll tell you something, ” he continued, pointing at the
