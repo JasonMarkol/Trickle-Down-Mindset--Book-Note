@@ -44,3 +44,20 @@ Tablets are nice, however except you have got the correct purposes put in to let
 # MAKING TIME FOR STRATEGIC PONDERING
 Many senior managers complain of not having sufficient time of their day. The issue is that they prioritise badly, giving the each day duties precedence over the extra necessary massive-image work. Managers want strategic pondering time. In the event you’re disorganised and burdened along with your workload, this time will not often come. Whenever you get organised and begin to prioritise successfully, you’ll have extra time to deal with the essential stuff like strategic pondering.
 
+# TRANSFERRING AHEAD – PREPARED, REGULAR, GO
+After you turn into conscious of your causes for being productive, you possibly can transfer ahead towards creating an answer that works for you and your life. After all, that you must make investments a while to make the modifications, however this funding might be repaid tenfold should you commit to creating the modifications. This journey isn’t for the faint-hearted; there shall be ups and downs, you'll soar and you'll fail, however that's the journey of life. That is what makes it candy and unhappy and valuable, and the vacation spot is completely as much as you. 
+
+# DISCOVERING YOUR CAUSES TO CHANGE
+Everybody has totally different causes for eager to be extra productive. Individuals’s lives differ, as do their motivations to vary. No matter your motivation to vary, changing into extra productive together with your time and actions will provide help to to realize your targets in life. Understanding what your causes are and understanding your individual motivations shall be beneficial to you while you meet the blocks and limitations to creating these adjustments.
+
+# DOING EXTRA WITH YOUR INDIVIDUAL TIME
+Every week is crammed with 168 hours. You possibly can’t change this reality, nor are you able to select to disregard it. What you determine to do with these hours determines how completely happy and profitable you're. For those who select to spend your time ready for the weekend or till the following large event, you’ll primarily waste that point and by no means get it again. Opting to take advantage of your time every day, every hour and every minute will assist you to succeed no matter what success means to you. This doesn’t imply that you may’t spend a few of that point stress-free, chilling or just being, so long as that is your acutely aware alternative and also you’re not in default lazy mode.
+
+# ELIMINATING DUTIES
+Create a cease-doing record. This record will enable you see the issues that you simply’re doing that actually don’t must be carried out. Possibly you’re utilizing Fb as a advertising instrument, however Fb hasn’t given you any return on funding. If you happen to cease spending time on Fb, may you be incomes more cash with the time saved?
+
+# RE-EVALUATING DUTIES
+Write a listing of all of the duties that you simply do every day, and take the highest two that burn up most of your time. First, ask your self: ‘Do these duties benefit the period of time I spend on them?’ If they're useful duties, ensure you are scheduling time for them. In the event that they don’t benefit your time and a spotlight, make the choice to delegate or outsource them or cease doing them altogether.
+
+# ADDRESSING E MAIL
+If one in all these duties is addressing electronic mail, ask your self how a lot time you need to spend on emails. Most individuals wish to spend considerably much less time on emails than they at present do. Seek advice from Chapter 15 for particulars on the best way to course of your electronic mail extra successfully.                   Don’t open your e-mail tomorrow morning till you’ve accomplished at the very least one necessary activity. Observe how good it feels and the way productive your day turns into.
