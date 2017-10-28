@@ -37,3 +37,10 @@ You should utilize many methods to create a extra productive surroundings. On th
 
 # COMPUTER SYSTEMS
 In case your laptop takes longer than a minute as well up, give it a kiss and say goodbye. Every minute you waste ready on a response out of your pc provides as much as hours on the finish of the yr. You’ll save money and time in the long term should you spend money on quick tools that does the job it was designed to do. 
+
+# TABLETS
+Tablets are nice, however except you have got the correct purposes put in to let you entry all of your paperwork and information, they could be a frustration and a time sap. Spend a while connecting your cloud-based mostly software program to your different gadgets for ease of file sharing. 
+
+# MAKING TIME FOR STRATEGIC PONDERING
+Many senior managers complain of not having sufficient time of their day. The issue is that they prioritise badly, giving the each day duties precedence over the extra necessary massive-image work. Managers want strategic pondering time. In the event you’re disorganised and burdened along with your workload, this time will not often come. Whenever you get organised and begin to prioritise successfully, you’ll have extra time to deal with the essential stuff like strategic pondering.
+
