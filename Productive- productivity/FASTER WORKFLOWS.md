@@ -64,3 +64,6 @@ If one in all these duties is addressing electronic mail, ask your self how a lo
 
 # MAKING YOUR LIFE SIMPLER
 Changing into extra productive is a intelligent approach to make your life simpler. Getting your work accomplished extra rapidly and effectively means you're employed fewer hours and may use the additional time saved to have extra enjoyable. Easy modifications like the way in which you course of your e-mail can assist you save as much as an hour a day. An hour saved every day provides as much as 5 hours every week, 20 hours a month, and nearly every week and a half every year. Or, in work time, that’s six work weeks every year that you should utilize to both earn more cash or to calm down and make your life simpler.
+
+# SETTING OBJECTIVES TO GET WHAT YOU NEED
+Probably the most highly effective method to get what you need out of life is to set targets. Targets create a transparent image of the place you wish to be and enable you to work out the steps to get there. Objective setting is a behavior of many profitable folks, from sport personalities to enterprise giants. They've achieved their greatness by creating targets.
