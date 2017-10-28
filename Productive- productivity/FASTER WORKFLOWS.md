@@ -75,3 +75,9 @@ Objectives aid you to attain what you need and really feel the satisfaction of s
 # WHAT NUMBER OF TARGETS TO SET
 
 One of many first questions I typically get requested about aim setting is ‘What number of targets ought to I set?’ On the subject of ten-12 months targets, you should have targets in all areas of your life so you will have fairly a couple of issues that you simply wish to see otherwise. The nearer the timeframe, the variety of targets ought to lower. In the case of yearly targets, the less, the higher however sufficient that you simply really feel such as you’re making progress. 5 appears to be the optimum quantity for yearly targets: many extra and also you received’t bear in mind them, and any fewer and it might really feel such as you’re not making sufficient progress every year. If in case you have just one objective, that's high quality, too.
+
+# FIND OUT HOW TO SET OBJECTIVES
+Many approaches to setting targets exist. You'll be able to give attention to what you need sooner or later in some ways, however the reality is that for aim setting to work, it's a must to deal with what you need versus what you don’t need. Setting the objective will not be sufficient; you could take motion every day towards reaching the purpose to ensure that it to manifest. 
+（设置目标的许多方法存在。你迟早会注意到你所需要的东西，然而事实是，目标设定的工作，必须处理你所需要的和你不需要的。设定目标是不够的；你每天都可以采取行动来达到目的，以确保目标得以实现。）
+
+
