@@ -1,6 +1,8 @@
 # Trickle-Down-Mindset--Book-Note
 # Idea 1
 “When we subtly shift toward both focusing on and finding joy in the process of achieving instead of having the goal, we have gained a new skill. And once mastered, it is magical and incredibly empowering”.
+# Idea 2 不要骗自己 mindset
+“Cheating discipline doesn’t work”. 
 # Idea 
 
 Whatever my accomplishments, all of the
