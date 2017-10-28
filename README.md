@@ -1,4 +1,8 @@
 # Trickle-Down-Mindset--Book-Note
+# Idea 1
+“When we subtly shift toward both focusing on and finding joy in the process of achieving instead of having the goal, we have gained a new skill. And once mastered, it is magical and incredibly empowering”.
+# Idea 
+
 Whatever my accomplishments, all of the
 things I loved were rooted in the dreams and goals I had as a child…and
 in the ways I had managed to fulfill almost all of them. <br/>
