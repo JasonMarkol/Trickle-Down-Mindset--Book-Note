@@ -27,3 +27,6 @@ This is essential in relation to customer support as a result of you'll be able 
 high quality of service and see what the outcomes are from a selected process. 
 You possibly can then change procedures and measure the affect extra precisely when you might have one thing to observe. <br/>
  
+# DIMINISHED LACK OF MENTAL DATA OVER TIME
+
+If you fail to seize your processes and procedures in a wise method, you threat dropping mental capital every time a employees member strikes. To stop this lack of information that one worker might maintain, it's best to hold your processes documented and saved electronically or on paper. You'll be able to merely report these processes in a Phrase doc or as a guidelines in a programme like Excel or Evernote. I exploit an internet site known as Course of Road (www.course of.st), which allows you to create checklists for the completely different processes concerned in your position. I've a coaching guidelines and a weblog posting course of. Course of Avenue has a variety of templates you can select from and personalise to fit your personal processes.
