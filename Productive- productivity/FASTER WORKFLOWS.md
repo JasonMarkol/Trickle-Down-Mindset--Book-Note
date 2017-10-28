@@ -34,3 +34,6 @@ If you fail to seize your processes and procedures in a wise method, you threat 
 # EXPLORING PRODUCTIVENESS METHODS （无所不用其极）
 
 You should utilize many methods to create a extra productive surroundings. On this part, I record tried and examined methods to up your sport and get into the driving force’s seat. A few of the higher recognized ones embody GTD, inbox zero and utilizing your calendar to plan your day. 
+
+# COMPUTER SYSTEMS
+In case your laptop takes longer than a minute as well up, give it a kiss and say goodbye. Every minute you waste ready on a response out of your pc provides as much as hours on the finish of the yr. You’ll save money and time in the long term should you spend money on quick tools that does the job it was designed to do. 
