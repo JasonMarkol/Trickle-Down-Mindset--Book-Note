@@ -34,3 +34,11 @@ Exercise 2. Make an outline of this chapter.<br/>
 Exercise 3. Make an outline of some lecture.<br/>
 Exercise 1. Draw a picture of the brain, showing roughly what takes place there (a) when you read a book, (6)
 listen to a lecture, (c) take notes.<br/>
+
+----------------------------------------------------------------
+
+In writing themes, the principle of distribution of time may also be profitably employed. After you have once
+written a theme, lay it aside for a while--perhaps a week. Then when you take it up, read it in a detached
+manner and you will note many places where it may be improved. These benefits are to be enjoyed only when
+a theme is planned a long time ahead. Hence the rule to start as early as possible.
+
