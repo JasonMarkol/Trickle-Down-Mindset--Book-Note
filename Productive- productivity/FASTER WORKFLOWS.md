@@ -30,3 +30,7 @@ You possibly can then change procedures and measure the affect extra precisely w
 # DIMINISHED LACK OF MENTAL DATA OVER TIME
 
 If you fail to seize your processes and procedures in a wise method, you threat dropping mental capital every time a employees member strikes. To stop this lack of information that one worker might maintain, it's best to hold your processes documented and saved electronically or on paper. You'll be able to merely report these processes in a Phrase doc or as a guidelines in a programme like Excel or Evernote. I exploit an internet site known as Course of Road (www.course of.st), which allows you to create checklists for the completely different processes concerned in your position. I've a coaching guidelines and a weblog posting course of. Course of Avenue has a variety of templates you can select from and personalise to fit your personal processes.
+
+# EXPLORING PRODUCTIVENESS METHODS （无所不用其极）
+
+You should utilize many methods to create a extra productive surroundings. On this part, I record tried and examined methods to up your sport and get into the driving force’s seat. A few of the higher recognized ones embody GTD, inbox zero and utilizing your calendar to plan your day.
