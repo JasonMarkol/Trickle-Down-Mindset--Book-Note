@@ -26,3 +26,4 @@ If you introduce checklists, you make sure that the method is adhered to complet
 This is essential in relation to customer support as a result of you'll be able to ensure that each buyer will get the identical
 high quality of service and see what the outcomes are from a selected process. 
 You possibly can then change procedures and measure the affect extra precisely when you might have one thing to observe. <br/>
+ 
