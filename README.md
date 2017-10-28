@@ -5,6 +5,15 @@
 “Cheating discipline doesn’t work”. 
 # Idea 
 
+# Rule
+“But I ’ ll tell you something, ” he continued, pointing at the
+door, “ every employee in this company thinks I have the answers.
+They think that I have a plan. I ’ ve got news for you: there really is
+no grand plan. We have only partial knowledge of how it is going
+to go. But if I were going to tell this to the people who work for
+me, they wouldn ’ t believe it for a minute. ”
+
+# 1
 Whatever my accomplishments, all of the
 things I loved were rooted in the dreams and goals I had as a child…and
 in the ways I had managed to fulfill almost all of them. <br/>
