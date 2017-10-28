@@ -1,4 +1,7 @@
 
+# MAKING A PLAN
+To create an efficient storage system for digital recordsdata, put a plan in place to find out how and the place information ought to be saved. If some planning is completed prematurely and also you and your staff know the way and the place to retailer recordsdata, you may remove a variety of dysfunction. One of the best plan is to reflect your paper submitting system. Use folders and subfolders and persist with a easy A to Z submitting system. 
+
 # FASTER WORKFLOWS
 
 The primary advantage of standardising procedures is the apparent time saved. 
