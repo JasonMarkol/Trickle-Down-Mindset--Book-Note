@@ -27,3 +27,8 @@ you are going to consult the book only briefly, you might find it necessary to s
 order to see the relation of the part you read to the entire work.<br/>
 
 5. Use the index intelligently; it may save you much time.<br/>
+------------------------------------------
+
+Exercise 1. Contrast the taking of notes from reading and from lectures.<br/>
+Exercise 2. Make an outline of this chapter.<br/>
+Exercise 3. Make an outline of some lecture.<br/>
