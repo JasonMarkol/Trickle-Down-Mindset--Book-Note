@@ -33,4 +33,4 @@ If you fail to seize your processes and procedures in a wise method, you threat 
 
 # EXPLORING PRODUCTIVENESS METHODS （无所不用其极）
 
-You should utilize many methods to create a extra productive surroundings. On this part, I record tried and examined methods to up your sport and get into the driving force’s seat. A few of the higher recognized ones embody GTD, inbox zero and utilizing your calendar to plan your day.
+You should utilize many methods to create a extra productive surroundings. On this part, I record tried and examined methods to up your sport and get into the driving force’s seat. A few of the higher recognized ones embody GTD, inbox zero and utilizing your calendar to plan your day. 
