@@ -67,3 +67,7 @@ Changing into extra productive is a intelligent approach to make your life simpl
 
 # SETTING OBJECTIVES TO GET WHAT YOU NEED
 Probably the most highly effective method to get what you need out of life is to set targets. Targets create a transparent image of the place you wish to be and enable you to work out the steps to get there. Objective setting is a behavior of many profitable folks, from sport personalities to enterprise giants. They've achieved their greatness by creating targets.
+
+# WHY TARGETS ARE ESSENTIAL （越狱 dig deep plan and go）
+Targets are necessary as a result of they offer you focus. They inspire you to take motion and to maneuver towards the change that you really want and need on your future. Objectives don’t must be massive, furry, audacious objectives, like creator and motivational speaker Anthony Robbins suggests, however they are often small enhancements you need in your life. Whether or not it’s operating a marathon, writing a weblog put up or simply altering a nasty behavior, all are objectives of differing types. <br/>
+Objectives aid you to attain what you need and really feel the satisfaction of self-enchancment. Skilled targets assist you be extra productive in work. For those who’re clear about what your objectives are, you possibly can concentrate on priorities. It’s simpler to know what to work on and what deserves your consideration. In the event you spend your days engaged on the correct issues, the issues that add worth and show you how to obtain your objectives, you’ll obtain the objectives extra rapidly.
