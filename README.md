@@ -1,4 +1,7 @@
 # Trickle-Down-Mindset--Book-Note
+Whatever my accomplishments, all of the
+things I loved were rooted in the dreams and goals I had as a child…and
+in the ways I had managed to fulfill almost all of them. <br/>
 Create a classroom blog that allows students to respond electronically to
 questions and ideas.<br/>
 Rather than using notecards, use a computer lab and display one comprehension question on each computer. Ask students to rotate around the room answering questions and making comments related to the topic.<br/>
