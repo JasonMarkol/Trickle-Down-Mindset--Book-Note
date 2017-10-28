@@ -42,3 +42,8 @@ written a theme, lay it aside for a while--perhaps a week. Then when you take it
 manner and you will note many places where it may be improved. These benefits are to be enjoyed only when
 a theme is planned a long time ahead. Hence the rule to start as early as possible.
 
+------------------------------------------------------------
+In writing themes, the principle of distribution of time may also be profitably employed. After you have once
+written a theme, lay it aside for a while--perhaps a week. Then when you take it up, read it in a detached
+manner and you will note many places where it may be improved. These benefits are to be enjoyed only when
+a theme is planned a long time ahead. Hence the rule to start as early as possible.
