@@ -32,3 +32,5 @@ order to see the relation of the part you read to the entire work.<br/>
 Exercise 1. Contrast the taking of notes from reading and from lectures.<br/>
 Exercise 2. Make an outline of this chapter.<br/>
 Exercise 3. Make an outline of some lecture.<br/>
+Exercise 1. Draw a picture of the brain, showing roughly what takes place there (a) when you read a book, (6)
+listen to a lecture, (c) take notes.<br/>
