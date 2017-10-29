@@ -6,6 +6,8 @@
 # Idea 
 开个玩笑兄弟，我也是挖个坑给你们吐槽一下。
 
+The setup, to a large degree, determines the type of
+swing you make. <br/>
 # Rule
 “But I ’ ll tell you something, ” he continued, pointing at the
 door, “ every employee in this company thinks I have the answers.
