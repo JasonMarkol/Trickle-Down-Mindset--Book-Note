@@ -5,7 +5,9 @@
 “Cheating discipline doesn’t work”. 
 # Idea 
 开个玩笑兄弟，我也是挖个坑给你们吐槽一下。
-
+2017.10.29 一个人生命的范围，就是他走过的路、遇过的人、见过的风景、发生的故事和收获的回忆。
+2017.10.26 你选择看的方向，决定了你所看到的事物。而你选择往哪个方向看，决定于你希望看到什么。——《唤醒内在的智慧》
+2017.10.24 你要努力成为对的人，而不是等着遇见对的人。共勉~  
 The setup, to a large degree, determines the type of
 swing you make. <br/>
 # Rule
