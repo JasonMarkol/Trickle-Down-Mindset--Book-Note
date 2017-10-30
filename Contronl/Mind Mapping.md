@@ -88,3 +88,31 @@ As you gradually relax your analytic mind and let the process take its
 natural course, deeper layers emerge that give you valuable insights into
 yourself. Save the maps for later; they will be used in the on-going
 process of building your action plan.
+
+# Exercise One: Love/Hate Introspection
+Do mind maps for each of the following four topics:
+
+<br/>What I love. <br/>
+
+Get started on a positive note. Pour out your heart. Include
+everything and everyone, no matter how silly or secret or
+shallow or deep. Nothing that comes to your mind is irrelevant.
+
+<br/>What I hate. <br/> 
+
+Take the lid off, let it rip. Same as above; do not hold back or
+edit yourself. Be as crass or sacrilegious or un-PC as you want. If
+it is in there, you want to see what it looks like without any makeup.
+<br/>
+What is not working. 
+<br/>
+When facing the need for change, it can be easier to first identify
+what you feel is not working in your life. Give expression to all
+your frustrations and worries, to anything you want changed;
+about circumstances, about other people, and about yourself.
+<br/>What is working.<br/>
+
+This is really a gratitude map by another name. Jot down
+everything in your life that is supportive, inspiring, and
+functioning well; all that is good in your life; in your world, in
+the people around you, and in yourself.
