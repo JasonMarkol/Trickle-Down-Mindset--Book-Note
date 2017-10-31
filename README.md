@@ -1,4 +1,5 @@
 # Trickle-Down-Mindset--Book-Note
+https://www.wattpad.com/home  
 Newest and easiest solution--Epubor Ultimate is the FIRST and ONLY tool on the market to strip Kindle KFX DRM directly and losslessly.  <br/>
 # Idea 1
 “When we subtly shift toward both focusing on and finding joy in the process of achieving instead of having the goal, we have gained a new skill. And once mastered, it is magical and incredibly empowering”.
