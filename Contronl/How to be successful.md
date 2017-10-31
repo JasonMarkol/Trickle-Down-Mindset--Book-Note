@@ -19,7 +19,7 @@ THE POWER OF DAILY</p>
 
 
 
-world class language</strong></p>
+<strong><p>world class language</strong></p>
                       <p data-p-id="14d013e51c8151a5177dbe6c5b7c20e1">Language offers a framework for meaning. Think about that powerful</p>
                       <p data-p-id="93aa9032dd50879e8fb8ded34cb50981">idea for a second. We understand the world through words. The words</p>
                       <p data-p-id="97790ea9f8821cf80c9c254d304b9a4a">you use determine the way you perceive reality.</p>
