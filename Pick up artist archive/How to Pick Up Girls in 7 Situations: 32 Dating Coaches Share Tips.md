@@ -1,6 +1,9 @@
-    Blog ▾ »
-    Texting Crash Course
-    Home
+
+
+# Link
+http://www.datingmetrics.com/how-to-pick-up-girls/#beach
+
+#正文
 
 How to Pick Up Girls in 7 Situations: 32 Dating Coaches Share Tips
 by Rich James Last updated April 7, 2017
