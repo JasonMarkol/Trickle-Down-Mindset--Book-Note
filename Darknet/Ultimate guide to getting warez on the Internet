@@ -1,0 +1,122 @@
+Message-ID: <3481DFDD.5C4D@mhv.net>
+Date: Sun, 30 Nov 1997 16:51:25 -0500
+From: nebraska@mhv.net
+X-Mailer: Mozilla 3.01Gold (WinNT; U)
+Newsgroups: alt.anything
+Subject: Ultimate Guide to Getting WaReZ on the Internet
+
+***********************************************************************
+
+Warez sites are a very poor source of warez for the majority of the
+links don't work or are linked to FTPs that are constantly full/busy.
+Also many warez sites are highly infested with demos and legally free
+software.  Probably due to ripping from other warez sites that are also
+infested with demos and/or the webmaster trying to 'puff up' his warez
+list by putting demo/shareware links that are easily confused as warez.
+Warez sites is the most user-frienly, eye appealing way to get warez
+though.
+
+I've seen a major improvement as far as finding and getting warez on
+the web, but it is on the downfall right now as many of the good sites
+are getting shut down.
+
+My three favorate warez sites:
+
+http://www.twofast.com/twoslow
+http://www.warezuniverse.net/frames.htm
+http://www.warezclan.com/main.html
+
+Watch out for the porno ads. Warez sites get A LOT OF HITS and
+have much potential to make money from advertisers. However, execpt
+for NetRadio, the people who are willing to pay for advertising
+on a warez site are Porno sites and Porno site hacking sites.
+Other people who advertise on warez sites are high risk credit card
+companies, credit search services, and astrology/psychic services.
+
+***********************************************************************
+
+Another way to find warez is through usenet newsgroups.  It's not
+a great way to get warez directly.  It is mostly advertisements
+of warez sites, warez ftp sites, trades, and site-lists.  Most
+'sign up for this.. sign up for that..' usually come out dry.
+Some of the alt.binaries.... groups have a shitload of warez posted
+directly on the newsgroups, however.
+
+***********************************************************************
+
+Warez can also be obtained by trading.; EfNet is the best IRC network
+for Warez. Just do a /list warez and it will find all the channels that
+have the
+word 'warez' in it's name. Most of these non-hidden channels are
+predominantly
+trading/advertising channels.  You will find many trade offers and ads
+to FTP
+sites and FServes (Mirc Hosted IRC-DCC-FTP), most of which are ratioed
+and slow.
+Undernet is the 2nd best IRC network for warez.
+
+***********************************************************************
+
+A good source of warez are reliable, fairly fast ratio FTPs. They
+have an excellent selection of warez due to the fact that you have to
+upload warez to download warez.  The diligence and skill of the FTP
+owner has a signifcant amount of impact on the quality of the FTP
+site's warez contents.  For a FTP with a bad sysadmin cound
+have a lot of demos and betas from cheaters and/or a lower selection
+of warez due to hackers bypassing the ratio enforcement.
+
+You can also get a lot of good warez by finding reliable 0-day warez
+FTP sites that are not horribly slow.
+
+***********************************************************************
+
+Another good source of warez is DCC/XDCC from warez offering bots on
+IRC.
+2 good channels on EfNet are #exceed and #warezwarez.
+
+A line of a listing:
+
+ #13 14x[30.7M] Ultima Underworld I & II *FULL* CD
+|Bot Name  |List|# |size |Name of warez software                       |
+             #   d/l
+
+Command format to request warez from an offering bot:
+
+/msg [bot's name]  xdcc send# [List #]
+
+Examples:
+
+ #11  9x[11.5M] Ultima 8: Pagan
+ #2   51x [4.3M] eudora 3.02 final [07.03.97]
+ #3 21x [4.3M] Eudora Pro 3.02 FULL
+ #13 14x[30.7M] Ultima Underworld I & II *FULL* CD
+
+1st: /msg MIND-DCCZ xdcc send #11
+2nd: /msg DMC-DCC99 xdcc send #2
+3rd: /msg ABS-DCC68 xdcc send #3
+4th: /msg MIND-DCCZ xdcc send #13
+
+Most bots require a minimum download speed of 30kbps, which is very
+difficult to obtain on DCC with a non-X2 modem.  It is possible with
+33.6, but not very probable at all.  the best channel that I know of
+for getting warez from bots is #exceed of EfNet.   Another problem is
+that the bots have a limit of # of concurent downloaders and many also
+limit the size of the 'waiting room' queue.  With some bots, you'll be
+waiting in the queu for 2 hours before being able to download...if
+there's even room in the queu.  You will also find many ads from warez
+groups recruitments on this channel (Got to look for them for the bots
+are constantly filling up the channel window with the list of the warez
+they are offering).
+
+***********************************************************************
+
+The best source of warez, and the highest level of illeagality is
+joining a warez group and earning full membership status.  You will
+most likely get access to the groups private FTP/Distribution Sites, or
+at least be able to grab a copy of the warez that you are currying.  If
+you have a fast server with a fast connection, sign up as a site-op and
+prepare for a massive flood of warez if the group gives your site a lot
+of courrier traffic.
+
+***********************************************************************
+
