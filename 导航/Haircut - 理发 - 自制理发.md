@@ -11,3 +11,5 @@
 
 幽默如我 ^o^  
 
+
+[11 vs 1: Rating Guys by Looks & Personality](https://www.youtube.com/watch?v=SNXhfvDE1aQ)
