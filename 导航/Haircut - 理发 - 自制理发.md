@@ -14,9 +14,11 @@
 
 [11 vs 1: Rating Guys by Looks & Personality](https://www.youtube.com/watch?v=SNXhfvDE1aQ)
 
+==========================================================
 
 
 [Grow A Great Beard | 3 Men's Grooming Tips With Beardbrand](https://www.youtube.com/watch?v=jhJGFGmFTCQ)
 
 1 take times make it grow ...
 
+[Fastest & Sharpest Beard Trim | How to Trim an Uneven Beard | | Tip #20 | 3 Minute Tutorial](https://www.youtube.com/watch?v=SAnFmdk1wOc)
