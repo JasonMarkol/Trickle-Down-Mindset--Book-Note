@@ -7,7 +7,7 @@
 [7 Subtle Signs You Are MORE Attractive Than You Think](https://www.youtube.com/watch?v=IEb0mJMi54k)
 
 
-[7 Subtle Signs You Are MORE Attractive Than You Think] (https://www.youtube.com/watch?v=IEb0mJMi54k)  
+
 
 幽默如我 ^o^  
 
