@@ -6,6 +6,10 @@
 
 -----------------------------------------
 
+# 思想法则
+
+[思想不到位，手段也无力，不要生搬硬套。]
+
 # People Book recommed again and again
 Secrets of the Millionaire Mind by T Harv Eker
 
