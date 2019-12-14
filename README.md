@@ -6,10 +6,6 @@
 
 -----------------------------------------
 
-# New
-
-When you can appreciate how your cryptosystem fits into the world at large, try to break it yourself! You shouldn't waste the time of tens of thousands of readers asking a question which you could have easily answered on your own. 
-
 # People Book recommed again and again
 Secrets of the Millionaire Mind by T Harv Eker
 
