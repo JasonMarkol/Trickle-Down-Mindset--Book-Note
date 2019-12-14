@@ -6,6 +6,9 @@ brotherhood
 https://www.rsdderek.com/brotherhood/?ref1=email&ref2=derek&ref3=ac12
 
 
+Real Men Real Style
+https://www.youtube.com/user/RealMenRealStyle/videos
+
 The Charisma Matrix
 https://www.youtube.com/user/CharismaMatrix/videos
 
