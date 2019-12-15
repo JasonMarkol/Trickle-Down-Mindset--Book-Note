@@ -19,6 +19,8 @@
 
 [Git换行 - 直接在要换行的语句最后打上2个空格]
 
+-----------------------------------------
+
 # People Book recommed again and again
 Secrets of the Millionaire Mind by T Harv Eker
 
