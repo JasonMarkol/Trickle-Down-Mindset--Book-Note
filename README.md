@@ -17,6 +17,8 @@
 
 [持续专注学习一个领域,三年磨一刀 ，十年出一剑]
 
+[Git换行 - 直接在要换行的语句最后打上2个空格]
+
 # People Book recommed again and again
 Secrets of the Millionaire Mind by T Harv Eker
 
