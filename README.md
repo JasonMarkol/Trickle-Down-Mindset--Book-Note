@@ -21,6 +21,13 @@
 
 -----------------------------------------
 
+# 娱乐法则 
+最近有什么不开心的事情？说出来让我开心一下。
+
+
+----------------------------------------
+
+
 # People Book recommed again and again
 Secrets of the Millionaire Mind by T Harv Eker
 
@@ -110,3 +117,4 @@ http://pan.baidu.com/s/1mgywALy
 
 # Goddess Anika Fall
 https://www.anikafall.com/
+
