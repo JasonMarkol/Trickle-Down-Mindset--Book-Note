@@ -39,3 +39,7 @@ love yourself ... you love yourself you not chaseing any other else's validation
 Why is that well , when you've got a great group of friends that love you and you love yourself then you're not gonna chase 
 
 other peoples validation .
+
+8   passion 
+
+ Now you gonna have a passion on yourself ... 
