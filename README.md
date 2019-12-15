@@ -4,6 +4,8 @@
 
 休息 - 训练 - 休息 - 训练 - 休息 - 训练 - 休息 - 训练 
 
+# How To Set Up Your Work Time
+[45MIN WORK IN CHUNKS OF UNINTERRUPTED TIME]
 -----------------------------------------
 
 # 思想法则
