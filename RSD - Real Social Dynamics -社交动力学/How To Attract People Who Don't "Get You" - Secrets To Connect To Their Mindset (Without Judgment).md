@@ -21,4 +21,7 @@ https://www.youtube.com/watch?v=4CYHEiejsCw
  
  you're gonna focus on the good and if those elements aren't a part of it to you then you choose the bad.
 
+
+ The trigger halo effect is inevest - get people to inevestment ...  
+ 
 6  buying frenzy 
