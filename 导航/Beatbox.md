@@ -72,3 +72,9 @@ MC Xander 'Sick Of The Lies'
 https://www.youtube.com/watch?v=gGWaKvllVVw   
 
 人家一出道你就看到他在玩LOOP 完全看不到suck的地方
+
+===============================================================================
+
+
+When you "try" to interview a Grand Beatbox Battle Champion | Kenny Urban
+https://www.youtube.com/watch?v=_zVCCOJyfZ8
