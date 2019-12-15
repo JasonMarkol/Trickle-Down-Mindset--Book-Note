@@ -20,3 +20,5 @@ https://www.youtube.com/watch?v=4CYHEiejsCw
  halo effect means that there's the full picture and its what you choose to focus on if there's certain elements that are a part of that 
  
  you're gonna focus on the good and if those elements aren't a part of it to you then you choose the bad.
+
+6  buying frenzy 
