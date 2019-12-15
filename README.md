@@ -5,7 +5,7 @@
 休息 - 训练 - 休息 - 训练 - 休息 - 训练 - 休息 - 训练 
 
 -----------------------------------------
-# How To Set Up Your Work Time
+# How To Set Up Your Work Time/Study Time
 
  45MIN WORK IN CHUNKS OF UNINTERRUPTED TIME
  
