@@ -25,3 +25,6 @@ https://www.youtube.com/watch?v=4CYHEiejsCw
  The trigger halo effect is inevest - get people to inevestment ...  
  
 6  buying frenzy 
+
+If you take time to build that halo effect Be fun and recognizing where somebody's coming from and having value then putting 
+a little bit of a price tag on that value . 
