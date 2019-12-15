@@ -15,3 +15,8 @@ https://www.youtube.com/watch?v=4CYHEiejsCw
 3 where are they ... what do they need to hear ...how could I serve them  ... and I go to make really audio ...
 
 4 audit yourself ... what you want ? we want different ... 
+
+5   halo effect
+ halo effect means that there's the full picture and its what you choose to focus on if there's certain elements that are a part of that 
+ 
+ you're gonna focus on the good and if those elements aren't a part of it to you then you choose the bad.
