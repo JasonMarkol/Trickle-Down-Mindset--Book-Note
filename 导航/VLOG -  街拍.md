@@ -1,4 +1,7 @@
 
+Bangkok 112
+https://www.youtube.com/user/chardonnay112/videos
+
 Harald Baldr
 https://www.youtube.com/channel/UCKr68ZJ4vv6VloNdnS2hjhA/videos 
 
