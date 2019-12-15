@@ -43,3 +43,6 @@ other peoples validation .
 8   passion 
 
  Now you gonna have a passion on yourself ... 
+ 
+ 
+ 48:00 
