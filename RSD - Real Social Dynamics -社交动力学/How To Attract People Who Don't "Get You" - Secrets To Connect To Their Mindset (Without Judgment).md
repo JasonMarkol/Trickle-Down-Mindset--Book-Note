@@ -28,3 +28,14 @@ https://www.youtube.com/watch?v=4CYHEiejsCw
 
 If you take time to build that halo effect Be fun and recognizing where somebody's coming from and having value then putting 
 a little bit of a price tag on that value . 
+
+
+7
+they're plotting in their mind about how to get what it is that you have to offer now  how do you build your lilfe like this  ?
+
+love yourself ... you love yourself you not chaseing any other else's validation likewise you want to have a great group of friends ,
+
+
+Why is that well , when you've got a great group of friends that love you and you love yourself then you're not gonna chase 
+
+other peoples validation .
