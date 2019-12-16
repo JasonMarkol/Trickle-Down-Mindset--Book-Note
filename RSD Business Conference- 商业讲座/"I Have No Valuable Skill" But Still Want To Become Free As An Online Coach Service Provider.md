@@ -9,3 +9,6 @@ https://www.youtube.com/watch?v=PimSvyz9AgM
 
 Montetize
 convert into or express in the form of currency.
+
+3.Help people overcom a problem you've overcom
+
