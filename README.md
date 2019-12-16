@@ -121,3 +121,5 @@ http://pan.baidu.com/s/1mgywALy
 # Goddess Anika Fall
 https://www.anikafall.com/
 
+# Goddess Charlotte Stokely
+http://charlottestokely.com/
