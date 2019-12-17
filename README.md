@@ -123,3 +123,6 @@ https://www.anikafall.com/
 
 # Goddess Charlotte Stokely
 http://charlottestokely.com/
+
+# Princess Ashley
+https://iwantclips.com/store/925/Princess-Ashley
