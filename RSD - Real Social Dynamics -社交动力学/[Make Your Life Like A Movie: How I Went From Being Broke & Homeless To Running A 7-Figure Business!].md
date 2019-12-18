@@ -5,3 +5,6 @@ https://www.youtube.com/watch?v=xrU0jkZNcqI&feature=push-u&attr_tag=B725ALkkAtuG
 
 
 
+1 Im change it rellay fast if this moive I thinik in my mind is boring .  I go strip next time maybe If be coach is boring ...
+
+2 I will go crazy If I don't know what my goal is ... Because I really don't know I just keep search meaning in life ...
