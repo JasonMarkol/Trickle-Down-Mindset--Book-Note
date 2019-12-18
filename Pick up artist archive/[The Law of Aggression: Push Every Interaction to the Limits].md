@@ -10,8 +10,7 @@ they’d open well, hook, gain attraction, get her number and come back all gidd
 My response was always, “Why did you stop? Dude… swing for the fucking fences.
 ALWAYS BE CLOSING.”
 
-# There are two parts to this mentality: one is to raise the bar high and expect more out of
-yourself. The second is to find her limits and always push the interaction there.
+# There are two parts to this mentality: one is to raise the bar high and expect more out of yourself. The second is to find her limits and always push the interaction there.
 
 The first is an inner game issue that afflicts too many guys I run into. Ironically, it’s usually
 the guys who are semi-naturals or who have a ton of potential who stumble over this problem
