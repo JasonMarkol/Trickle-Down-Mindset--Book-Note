@@ -124,6 +124,8 @@ Data sources: 1. Listen to one podcast episode.
 《Trickle Down Mindset》
 http://pan.baidu.com/s/1mgywALy 
 
+# Pickupguide
+http://www.pickupguide.com/
 # 尚忆教育
 http://www.jiyili.net/forum.php
 # 懒盘网盘聚合
