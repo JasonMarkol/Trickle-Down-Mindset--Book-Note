@@ -61,3 +61,6 @@ NLP二分法
 3：为每一个点，赋予相应的内容描述
 
 其中原理语言模式NLP下切模式
+
+http://www.gerenguanli.com/2019/639.html
+
