@@ -11,6 +11,12 @@ https://www.youtube.com/watch?v=_zcPJv7x_us
 
 #  This time you do is - Find your exact audience ！！！
 
+# Find your exact audience  Get to know your audience better! 
+
+ what thier fear ? what are they doing now ? what is he lack ? what she no take action to get ?
+ 
+ 
+
 This takes into consideration: 
 
 1) What are you good at? What challenges have you overcome in your life that other people mind find themselves in right now? This can be your business idea in 2019 if you now figure out the next step. 
