@@ -23,6 +23,7 @@ https://www.youtube.com/watch?v=_zcPJv7x_us
 
 Hey I trying to find people like you what your problem now ? 
 
+#   Creating the offer  - How you can help them better ? what you go to do to help them .
 
 This takes into consideration: 
 
