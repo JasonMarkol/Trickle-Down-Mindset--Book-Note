@@ -7,6 +7,7 @@ https://www.youtube.com/watch?v=_zcPJv7x_us
 
 # First is Allways start with the client in mind - Who is the person I help with ? what I can give ? 
 
+# Any challenge you've been through can help people! 你的经验 > 对方 >对方正好困于某个问题 
 
 This takes into consideration: 
 
