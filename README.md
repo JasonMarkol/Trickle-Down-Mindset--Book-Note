@@ -124,6 +124,8 @@ Data sources: 1. Listen to one podcast episode.
 《Trickle Down Mindset》
 http://pan.baidu.com/s/1mgywALy 
 
+# 今日祈祷文
+https://www.jianshu.com/p/8aa18be66524
 # outrageous - 骇人听闻 - Oh锐杰死！
 # nine out of ten of 有十分之九的几率; 十有八九
 # trajectory - 轨道 - 错加特锐
