@@ -25,6 +25,9 @@ Hey I trying to find people like you what your problem now ?
 
 #   Creating the offer  - How you can help them better ? what you go to do to help them .
 
+
+# Testing and validating the offer  - Needd sales skill  - you can make free first to test ...
+
 This takes into consideration: 
 
 1) What are you good at? What challenges have you overcome in your life that other people mind find themselves in right now? This can be your business idea in 2019 if you now figure out the next step. 
