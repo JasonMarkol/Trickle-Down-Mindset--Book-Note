@@ -28,6 +28,8 @@ Hey I trying to find people like you what your problem now ?
 
 # Testing and validating the offer  - Needd sales skill  - you can make free first to test ...
 
+#     Adjusting your test offer with first test clients (who could potentially even already pay you)
+
 This takes into consideration: 
 
 1) What are you good at? What challenges have you overcome in your life that other people mind find themselves in right now? This can be your business idea in 2019 if you now figure out the next step. 
