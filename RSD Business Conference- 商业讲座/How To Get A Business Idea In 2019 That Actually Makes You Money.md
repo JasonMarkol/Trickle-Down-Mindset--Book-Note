@@ -3,7 +3,8 @@ https://www.youtube.com/watch?v=_zcPJv7x_us
 
 # Business ideas are overrated
 # - focus on positioning,execution,consistency.
-# No product first -  Consulting - training - coaching
+# No product first -  Consulting - training - coaching  - Reverse engineer the process to create the "product".
+
 # First is Allways start with the client in mind - Who is the person I help with ? what I can give ? 
 
 
