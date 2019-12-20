@@ -9,6 +9,8 @@ https://www.youtube.com/watch?v=_zcPJv7x_us
 
 # Any challenge you've been through can help people! 你的经验 > 对方 >对方正好困于某个问题 
 
+#  This time you do is - Find your exact audience ！！！
+
 This takes into consideration: 
 
 1) What are you good at? What challenges have you overcome in your life that other people mind find themselves in right now? This can be your business idea in 2019 if you now figure out the next step. 
