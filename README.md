@@ -124,6 +124,9 @@ Data sources: 1. Listen to one podcast episode.
 《Trickle Down Mindset》
 http://pan.baidu.com/s/1mgywALy 
 
+# Urban
+https://www.urbandictionary.com/
+
 # 今日祈祷文
 https://www.jianshu.com/p/8aa18be66524
 # outrageous - 骇人听闻 - Oh锐杰死！
