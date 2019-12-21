@@ -1,5 +1,5 @@
 
-# 新浪微博 //weibo.com/verycrazy   872139568@qq.com
+# 新浪微博 weibo.com/verycrazy   872139568@qq.com
 # 训练模式
 番茄工作法/学习法/练习法/阅读法
 
