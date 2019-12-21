@@ -1,0 +1,8 @@
+
+EXCEPTIONAL Outcomes Require EXCEPTIONAL Behaviors! Derek's Rant On Being An Effective Executor!
+
+
+# WHY DO IT OWN ALL THE BIZ THINGS .
+
+# IF YOU GOAL TO TINY WHY NOT MAKE BIG YOU CAN ACHIVE AND YOU NEED A TEAM .
+
