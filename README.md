@@ -1,6 +1,11 @@
 
 # 新浪微博 weibo.com/verycrazy   872139568@qq.com
 # 城通网盘 https://www.ctfile.com/ 
+# The book that changed my social life
+How to Win Friends and Influence People 
+
+Its all about them .
+
 # 训练模式
 番茄工作法/学习法/练习法/阅读法
 
