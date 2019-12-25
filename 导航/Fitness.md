@@ -22,6 +22,8 @@ https://www.youtube.com/channel/UCC7AJ-P3n4j02i-YzReHCNw/videos
 SwimOutletGear
 https://www.youtube.com/user/SwimOutletGear/videos
 
+William Lo
+https://www.youtube.com/user/BNSFitnessHK/videos
 
 
 =====================================================================================
