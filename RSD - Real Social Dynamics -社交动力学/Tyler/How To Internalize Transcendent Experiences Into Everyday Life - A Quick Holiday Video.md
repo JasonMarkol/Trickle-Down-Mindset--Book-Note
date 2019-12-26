@@ -12,3 +12,4 @@ Not just joy you got to track it a little bit
 
 2 How do I give that to myself ?  What do I focus ?
 
+3 make an experience a way of life 
