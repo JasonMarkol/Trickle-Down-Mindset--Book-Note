@@ -16,7 +16,7 @@ https://www.youtube.com/watch?v=nzTxcoF20dU
 
 6 Have a Skincare routine
 
-
+7 Keep your car clean .
 
 
 
