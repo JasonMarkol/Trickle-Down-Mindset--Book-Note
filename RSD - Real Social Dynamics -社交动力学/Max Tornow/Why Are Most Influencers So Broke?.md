@@ -12,3 +12,9 @@ https://www.youtube.com/watch?v=8wgdyg9iX2w
 
 - Most influencers are broke. Stop think are you cool enough to post somethings. No, Stop . Most influencers are broke.
 
+ Focus on making money ,allright ！？ 
+ 
+ 
+ 
+ 
+
