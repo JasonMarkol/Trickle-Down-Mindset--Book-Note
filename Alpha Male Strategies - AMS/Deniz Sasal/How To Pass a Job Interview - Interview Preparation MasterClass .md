@@ -20,3 +20,6 @@ https://www.youtube.com/watch?v=9mXG3AiXVMY
 - Don't only pay attention to job description . Make sure the hiring manager gets the feeling of Yes you know your job well . you as expert as you claim ,but also you are a genuine person, you are likeable ,and you are trustworthy.  o(*≧▽≦)ツ 
 
 -  You are going to have to make sure he likes you .  o(*≧▽≦)ツ 
+
+- You have to insert these perceptions while answering their questions and engaging in conversations.
+
