@@ -17,5 +17,5 @@ https://www.youtube.com/watch?v=9mXG3AiXVMY
 
 -  Focus on the problem and how you are the solution. If you fail in your area , We are done ...
 
-
+- Don't only pay attention to job description . Make sure the hiring manager gets the feeling of Yes you know your job well . you as expert as you claim ,but also you are a genuine person, you are likeable ,and you are trustworthy.  o(*≧▽≦)ツ 
 
