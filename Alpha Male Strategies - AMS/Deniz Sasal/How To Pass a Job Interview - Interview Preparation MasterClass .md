@@ -11,3 +11,7 @@ https://www.youtube.com/watch?v=9mXG3AiXVMY
 
 - You beat them with your expertise,and confuse the heck out of them with terminologies,methodologies.that they won't even know that exist .
 
+- Unless you screw up in other areas ,she's not going to be able to take that risk of failing an expert.   A hiring manager can fail an expert .But HR can't take that risk . 
+
+- Of course as long as you don't screw up in other areas.
+
