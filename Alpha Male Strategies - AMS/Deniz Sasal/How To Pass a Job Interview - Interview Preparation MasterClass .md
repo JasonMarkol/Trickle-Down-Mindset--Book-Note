@@ -29,3 +29,7 @@ https://www.youtube.com/watch?v=9mXG3AiXVMY
 
 - Unless you have strong , very strong differentiators, you will be eliminated . Because a litte bit of stupid things.
 
+- Different tips - Give what they want and need , and give a little bouns .   Like I got other skill !!!! 
+
+
+
