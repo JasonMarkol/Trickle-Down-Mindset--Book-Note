@@ -15,3 +15,7 @@ https://www.youtube.com/watch?v=9mXG3AiXVMY
 
 - Of course as long as you don't screw up in other areas.
 
+-  Focus on the problem and how you are the solution. If you fail in your area , We are done ...
+
+
+
