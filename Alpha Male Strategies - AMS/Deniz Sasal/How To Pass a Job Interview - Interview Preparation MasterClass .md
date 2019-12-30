@@ -26,3 +26,6 @@ https://www.youtube.com/watch?v=9mXG3AiXVMY
  - Insert your zhuangbility ！！！  o(*≧▽≦)ツ 
 
 - Everyone is the same. So here is the punchline for you! Unless you can significantly differentiate yourself from the others , you will be eliminated by incredibly small things.
+
+- Unless you have strong , very strong differentiators, you will be eliminated . Because a litte bit of stupid things.
+
