@@ -32,4 +32,4 @@ https://www.youtube.com/watch?v=9mXG3AiXVMY
 - Different tips - Give what they want and need , and give a little bouns .   Like I got other skill !!!! 
 
 
-
+21:00
