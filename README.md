@@ -1,5 +1,9 @@
 # hosting skills
 
+# fem[催眠]
+
+http://www.mindymadison.com/
+
 # WAVE CLOUD
 https://wc.langhuayun.me/user 
 
