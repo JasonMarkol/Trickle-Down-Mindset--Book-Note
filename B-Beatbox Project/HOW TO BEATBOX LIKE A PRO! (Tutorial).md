@@ -19,3 +19,9 @@ speed patterns .
 
 - Cobinme sound or somethings ...
 
+Bass #1 = Throat bass - Start with a bottle of water and start ...
+
+ Bass #2 = Tongue bass
+
+Bass #3 = Lip oscillation
+
