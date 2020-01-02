@@ -16,4 +16,4 @@ https://www.youtube.com/watch?v=zOTsTmppIyk
 - Think accurately - True - not somebody told you ...
 
 
-6:25
+12:13
