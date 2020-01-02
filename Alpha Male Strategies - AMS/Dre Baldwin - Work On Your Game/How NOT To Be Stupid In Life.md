@@ -13,7 +13,9 @@ https://www.youtube.com/watch?v=zOTsTmppIyk
 
 - Goal - You must have goal ...
 
-- Think accurately - True - not somebody told you ...
+- Think accurately - True - not somebody told you ... - accurate thought - Not runing youtube - not running to school - not running to person ...
+
+- challenge your brains -think independently you start coming up with solutions on yourself and life.
 
 
 12:13
