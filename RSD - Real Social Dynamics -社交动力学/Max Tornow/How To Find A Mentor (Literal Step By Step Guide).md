@@ -7,3 +7,5 @@ https://www.youtube.com/watch?v=JR3qd31Oci8
 
 
 
+- where they go ? what they need ? 
+
