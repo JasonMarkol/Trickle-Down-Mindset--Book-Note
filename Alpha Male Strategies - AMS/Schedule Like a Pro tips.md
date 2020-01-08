@@ -36,4 +36,6 @@ many things to do you got none of them get challenge you .
 Every schedule in your phone - 这是问题也是好的地方。 这之前脑袋中时时刻刻应该有一个vision 方向在正中心定位的。不能掉的这个。要不然人会迷糊。
 
 
-
+ - Every day you do this do that and do that taht ... thats the game！
+ 
+ 
