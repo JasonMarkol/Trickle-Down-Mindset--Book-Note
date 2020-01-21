@@ -9,6 +9,6 @@
 
 - The Brain like AI - Form point A to point B . It just go like this .
 
-
+- Cut anything that short-term dopamine releases.
 
 
