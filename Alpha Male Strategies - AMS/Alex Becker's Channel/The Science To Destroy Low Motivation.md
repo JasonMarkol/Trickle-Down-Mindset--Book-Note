@@ -5,5 +5,5 @@
 
 - Something drive you in different direction . 
 
-
+- Video games like war to war crap - The Game is engineered to give you dopamine as fast as possible and use that to get you hooked .
 
