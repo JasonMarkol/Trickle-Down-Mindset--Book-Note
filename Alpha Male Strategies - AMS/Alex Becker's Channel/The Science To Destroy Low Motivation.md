@@ -11,4 +11,9 @@
 
 - Cut anything that short-term dopamine releases.
 
+- Dopamine Like go eazy ,sweet , not diffluct . It want to train your brain to go eazy way .
+
+
+
+
 
