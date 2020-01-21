@@ -7,3 +7,8 @@
 
 - Video games like war to war crap - The Game is engineered to give you dopamine as fast as possible and use that to get you hooked .
 
+- The Brain like AI - Form point A to point B . It just go like this .
+
+
+
+
