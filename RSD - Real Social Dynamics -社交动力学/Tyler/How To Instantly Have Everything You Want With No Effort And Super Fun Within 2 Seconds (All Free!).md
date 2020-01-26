@@ -12,7 +12,10 @@ There's a niche for it - there's not a mainstream niche for it .
 
 - First you have get a vision - Finding a win win place 
 
-- Fail to relaship 为什么你交往的人都走光了？  bc learn social is a skillset .
+- Fail to relaship 为什么你交往的人都走光了？  bc learn social is a skillset . It is a very challenging skill set .
+
+- empathy - impulse control - thinking outside yourself - finding a win- win - Having boundaries - having shared vision- checking in - transparency - getting past ego - realizing their value  ....
+
 
 # "How to Have a Clickbait Title and Still Deliver Good Value"
 
