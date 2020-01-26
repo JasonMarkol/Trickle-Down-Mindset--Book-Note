@@ -7,3 +7,6 @@ There's a niche for it - there's not a mainstream niche for it .
 
 - This is about your grow .
 
+- You should look for counter opinions and you should look for biases .
+
+
