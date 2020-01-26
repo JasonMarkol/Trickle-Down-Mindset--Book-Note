@@ -10,4 +10,7 @@ There's a niche for it - there's not a mainstream niche for it .
 - You should look for counter opinions and you should look for biases .
 
 
+- First you have get a vision - Finding a win win place 
+
 # "How to Have a Clickbait Title and Still Deliver Good Value"
+
