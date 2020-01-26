@@ -20,6 +20,8 @@ There's a niche for it - there's not a mainstream niche for it .
 
 -  You've got to be looking att business relationships friendships work situations and so on ..... Giving an honest brutal audit of what that is giving and taking ...
 
+- When you pick the project to test yourself on it actually gives you the chance - It basically brings the misery to the surface you see that ?
+
 
 
 
