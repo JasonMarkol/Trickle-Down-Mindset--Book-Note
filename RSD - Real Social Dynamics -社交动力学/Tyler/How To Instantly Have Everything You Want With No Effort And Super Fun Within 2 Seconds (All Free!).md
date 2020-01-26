@@ -16,6 +16,13 @@ There's a niche for it - there's not a mainstream niche for it .
 
 - empathy - impulse control - thinking outside yourself - finding a win- win - Having boundaries - having shared vision- checking in - transparency - getting past ego - realizing their value  ....
 
+- They've created many many win/win inputs into their livess that are giving more than its taking . You catch that ?Its giving more than its taking .  
+
+-  You've got to be looking att business relationships friendships work situations and so on ..... Giving an honest brutal audit of what that is giving and taking ...
+
+
+
 
 # "How to Have a Clickbait Title and Still Deliver Good Value"
 
+- They've created many many win/win inputs into their livess that are giving more than its taking . You catch that ?Its giving more than its taking .
