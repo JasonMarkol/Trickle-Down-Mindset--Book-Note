@@ -1,4 +1,5 @@
 # hosting skills
+# 《抖音游戏推广达人新手从0到收益15万》
 
 
 # Learning should be organized around problems, projects, and (students’) questions — not around lists of facts or skills, or separate disciplines.
@@ -12,6 +13,7 @@ Its all about them .
 
 # 训练模式
 番茄工作法/学习法/练习法/阅读法
+
 
 休息 - 训练 - 休息 - 训练 - 休息 - 训练 - 休息 - 训练 
 
